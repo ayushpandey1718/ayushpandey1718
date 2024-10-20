@@ -1,5 +1,23 @@
-# Yeah!! It's about Me 🥹
-🔭 I’m currently studying in SRM Institute of Science and Technology🚀<br>🌱 I’m currently pursuing my B.Tech in Computer Science 👨🏻‍🎓<br>💬 Reach me: pandeyayush1718@gmail.com 💌🫶🏻
+# Yeah!! It's about Me 🥹You
+Hello World! 🌍
+
+I'm Ayush Pandey, a passionate second-year Computer Science student at SRM Institute of Science and Technology👨🏻‍🎓
+
+As a dedicated programmer, my journey revolves around creating innovative solutions and pushing the boundaries of technology.
+
+I'm on a mission to become the perfect engineer, constantly learning and evolving my skills.📊
+
+
+Let's innovate together and turn ideas into reality! When I'm not immersed in code, you can find me pursuing fitness goals and maintaining a healthy lifestyle. 💪
+
+🌟 Let's connect and create something amazing!
+
+Feel free to reach out and collaborate.💌 
+
+Together, we can shape the future of technology. 🚀
+
+💬 Reach me: pandeyayush1718@gmail.com 💌🫶🏻
+
 ---
 [![](https://visitcount.itsvg.in/api?id=ayushpandey1718&icon=0&color=0)](https://visitcount.itsvg.in)
 
