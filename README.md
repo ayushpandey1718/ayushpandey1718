@@ -1,4 +1,4 @@
-# Yeah!! It's about Me 🥹You
+# Yeah!! It's about Me 🥹
 Hello World! 🌍
 
 I'm Ayush Pandey, a passionate second-year Computer Science student at SRM Institute of Science and Technology👨🏻‍🎓
