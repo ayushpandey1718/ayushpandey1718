@@ -16,7 +16,7 @@ Feel free to reach out and collaborate.💌
 
 Together, we can shape the future of technology. 🚀
 
-💬 Reach me: pandeyayush1718@gmail.com 💌🫶
+💬 Reach me: pandeyayush1718@gmail.com 💌🫶🏻
 
 ---
 <a href="https://visitcount.itsvg.in">
