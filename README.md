@@ -19,9 +19,7 @@ Together, we can shape the future of technology. 🚀
 💬 Reach me: pandeyayush1718@gmail.com 💌🫶🏻
 
 ---
-<a href="https://visitcount.itsvg.in">
-  <img src="https://visitcount.itsvg.in/api?id=ayushpandey1718&label=Profile%20Views&icon=0&pretty=false" />
-</a>
+
 
 
 
