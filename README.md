@@ -1,7 +1,8 @@
+<p align="center">
+  <img src="./github-banner.png" alt="Ayush Pandey - 3D Developer Banner" width="100%">
+</p>
 
-
-
-
+---
 # Yeah!! It's about Me 🥹
 Hello World! 🌍
 
